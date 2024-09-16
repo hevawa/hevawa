@@ -1,5 +1,7 @@
-## Hi there 👋
+## oii 🩷🩷
+oiii, meu nome e Hevilin Kawany Miranda estou no 1A e estudo na escola jardim porto alegre
 
+![](https://media.giphy.com/media/7qlQAzqdYYSNa/giphy.gif?cid=790b7611quvft7i0i409ouhpp6wpip407qsc7gj1ikgs5u8b&ep=v1_gifs_search&rid=giphy.gif&ct=g)
 <!--
 **hevawa/hevawa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
