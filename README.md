@@ -1,5 +1,6 @@
 ## oii 🩷🩷
 oiii, meu nome e Hevilin Kawany Miranda estou no 1A e estudo na escola jardim porto alegre
+meu e-mail miranda.hevilin@escola.pr.gov.br
 
 ![](https://media.giphy.com/media/7qlQAzqdYYSNa/giphy.gif?cid=790b7611quvft7i0i409ouhpp6wpip407qsc7gj1ikgs5u8b&ep=v1_gifs_search&rid=giphy.gif&ct=g)
 <!--
